@@ -1,0 +1,2 @@
+# Dian-kerja
+Tugas informatika 
